@@ -5,5 +5,7 @@ I graduated with honors from this on-line course:
 1) https://stepik.org/course/63054 (Description)
 2) https://stepik.org/course/63054/syllabus (Contains)
 and I have qualifying certificate.
+
 You can ask me some questions to know more.
+
 Have a good time!
